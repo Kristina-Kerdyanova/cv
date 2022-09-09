@@ -14,7 +14,7 @@
 ##  Location: 
     Tashkent, Uzbekistan
 
-*********
+    *********
 
 ##  About myself:
     I am easy to learn and hard-working. I like working in a team and I am active.
